@@ -6,7 +6,7 @@ Birgit Rabold <br/>
 Burgwall, 7 <br/>
 16248 Stolzenhagen <br/>
  <br/>
-Telefon: 0176-78019844 <br/>
+Telefon: [0176-78019844](tel:+4917678019844) <br/>
 Email: [info@die-wilde-moehre.de](mailto:info@die-wilde-moehre.de)
 
 
